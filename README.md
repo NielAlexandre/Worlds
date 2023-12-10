@@ -1,0 +1,2 @@
+C'est ridicule. Tout ce que j'écris est ridicule.
+Je ne sais pas pourquoi je les écris ni pourquoi je les conservent. Une forme d’exorcisme ? L'espoir de croire qu'un jour cela touchera quelqu'un ? Le plaisir de savoir que ça n'intéressera jamais personne.

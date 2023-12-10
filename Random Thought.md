@@ -49,3 +49,9 @@ Mais il faut créer et la motivation ~~ne~~ se gagne ~~pas~~ au loto. Le succès
 Qu'est-ce que le succès ? La Chance ? Une personne touché ? deux ? dix ? milles ?
 **The Story of the Vivian Girls, in What Is Known as the Realms of the Unreal, of the Glandeco-Angelinian War Storm, Caused by the Child Slave Rebellion**
 **Sonichu**
+
+---
+
+Créature seule
+La bête est dans l'homme, l'homme est dans la bête
+En traversant le desert, une femme s'est perdue
