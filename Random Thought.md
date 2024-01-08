@@ -55,3 +55,16 @@ Qu'est-ce que le succès ? La Chance ? Une personne touché ? deux ? dix ? mille
 Créature seule
 La bête est dans l'homme, l'homme est dans la bête
 En traversant le desert, une femme s'est perdue
+
+---
+
+J'aimerais rencontrer et discuter avec une personne qui me comprendrait, me guiderais et m'aimerais. Avec qui je pourrait  m'épanouir. Discuter sans mot, partager le même vocabulaire, s'intéressé aux même sujet et s'entraîner l'un l'autre à la réalisation de ces projets commun. Être la pour s'écouter, se comprendre et se motiver mutuellement. Etre libre de parler de tout et de comprendre le silence.
+Une personne aussi qui me ressemble, partage ma connaissance et mes philosophie ?
+C'est beaucoup demander ? Peut être. Ou peut-être pas. Cette personne n'est pas si loin, puisque cette personne : c'est moi.
+Il faut apprendre à se parler à soit même, s'écouter soit-même, se motiver soit-même. On a tous en nous le penseur et le faiseur, l'intellectuel et le manuel, le cerveau et les mains.
+
+"Parle-moi oh parle-moi mais sans les mots.  
+Donne moi le goût (berce moi du bruit) de ton silence." - Michel Polnareff
+
+---
+

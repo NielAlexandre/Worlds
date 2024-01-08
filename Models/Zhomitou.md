@@ -1,0 +1,3 @@
+- Classe : Noble
+- Rang : Courtisanne
+- Alignement : Neutre/Bon
